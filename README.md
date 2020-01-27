@@ -1,1 +1,0 @@
-# blyadilist.in.ua_1
